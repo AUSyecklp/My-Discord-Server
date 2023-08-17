@@ -1,4 +1,4 @@
-# My-Discord-Server
+# 📸 Preview
 This is my Discord Server 
 invie link: https://discord.gg/mYWFvmFPaX
 ![bea7b89cb4135dc845b1e30d7e6d2f7](https://github.com/AUSyecklp/My-Discord-Server/assets/73651864/c17975cb-f571-45cb-ab21-109b077d21b8)
